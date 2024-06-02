@@ -1,0 +1,1 @@
+Hello Everyone who is reading this README.md. I just created a file for let Koharu_Shizen to see is her online. I coded a hxg8 script has 10000+ lines WITH 100+ lines of code and 10000+ lines of binary Data. 
